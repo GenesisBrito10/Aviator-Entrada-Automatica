@@ -1,0 +1,1 @@
+# Aviator-Entrada-Automatica
